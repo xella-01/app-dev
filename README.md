@@ -6,7 +6,7 @@
 ## Overview
 *XO, Kitty* is a **Netflix original series** and a spin-off of *To All the Boys I’ve Loved Before*. It follows **Kitty Song Covey**, a curious and confident teenager who travels to **Seoul, South Korea** to reunite with her long-distance boyfriend and learn more about her mother’s story. The show explores themes of love, culture, and self-discovery.
 
-You can watch the trailer here: [XO, Kitty Trailer](https://www.netflix.com/ph/title/81477922)
+You can watch the trailer here: [XO, Kitty Trailer](https://www.netflix.com/ph-en/title/81324724)
 
 ---
 
