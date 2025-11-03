@@ -29,6 +29,4 @@ The series reminds me that `love isn’t always perfect`, but it helps people gr
 ### Favorite Quote
 > “You can’t plan love. It just happens when you least expect it.”
 
----
 
-![XO, Kitty Poster](https://upload.wikimedia.org/wikipedia/en/d/d3/XO%2C_Kitty_poster.jpg)
